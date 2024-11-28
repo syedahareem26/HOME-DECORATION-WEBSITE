@@ -20,7 +20,7 @@ CSS
 
 Member 1 (Noor-Ul-Huda Imran)
 
-Member 2 (Hareem Basit)
+Member 2 (Syeda Hareem)
 
 Member 3 (Muneeb Abbasi)
 
